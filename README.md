@@ -1,3 +1,6 @@
 About
 ==========
-and everything else
+reimu hakurei 1337....
+
+
+   the shrine.... REEEEEEL.
