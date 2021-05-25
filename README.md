@@ -1,6 +1,7 @@
 About
 ==========
 reimu hakurei 1337....
-
-
-   the shrine.... REEEEEEL.
+   
+   anyways I code in python, javascript, and soon c/c++ 
+   
+   rain falls.
